@@ -1,1 +1,0 @@
-# bolum-sonu-calismasi
